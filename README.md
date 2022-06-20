@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @CristelCapetillo
-- 👀 I’m interested in Software devolepment and all IT-related
+- 👀 I’m interested in Software development and all IT-related
 
